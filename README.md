@@ -1,6 +1,6 @@
 # hello-world
-just another repository
 
+just another repository
 
 emmmmm.....
 I don't know what should I say. because I'm new one here.
